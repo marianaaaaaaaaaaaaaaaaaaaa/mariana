@@ -1,10 +1,11 @@
--
-👋 Hi, I'm @mariaaaaaaaaaaaaaaaaaaaaa
-- 👀 I'm interested in women
-- 🌱 I'm currently learning I don't know
-- 💞️ I'm looking to collaborate on my mental health
-- 📫 How to get to me be a hot woman beutyfull and cute 
-- i am big shoes fora do closet  
+
+
+meu nome é mariana.
+
+eu tenho 16 anos. 
+
+estudo no colégio meneleu de almeida torres.
+
 
 <!---
 marianaaaaaaaaaaaaaaaaaaaa/marianaaaaaaaaaaaaaaaaaaaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
